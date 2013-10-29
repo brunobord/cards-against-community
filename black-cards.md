@@ -11,3 +11,7 @@
 > Apple users? Bunch of _____ wearing ______
 
 > ________.org / _________
+
+> I've started running Ubuntu because of _____________
+
+> I was listening to Lugradio because of _____________

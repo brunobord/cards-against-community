@@ -17,3 +17,6 @@
 * Schwuk
 * Ubuntu
 * Desert Island Disk
+* The gorilla joke
+* Spunky pie
+* National Lottery
